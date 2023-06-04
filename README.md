@@ -1,2 +1,0 @@
-# mashro3
-asdadad
